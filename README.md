@@ -1,1 +1,3 @@
-# .github
+# *Everything Will Fall Apart — The Illusion of the Future | Alan Watts Truth*
+## *Discover why everything falls apart and why that's liberating. Learn how the future is an illusion and how accepting impermanence frees you to live fully in the present moment. 🔔 Follow for more soulful wisdom, presence practices, and truth bombs.* [More details…](https://spiritualkhazaana.com/web-stories/everything-will-fall-apart/)
+## #EverythingFallsApart #AlanWatts #IllusionOfFuture #Impermanence #LiveInTheNow #LetGo #AcceptChange #PresentMoment #SpiritualTruth #NoAttachment #Consciousness #Freedom #InnerPeace #LettingGo #Mindfulness #SpiritualAwakening #Impermanence #Now
